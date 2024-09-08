@@ -1,4 +1,9 @@
-### Hi there 👋
+### I am a driven and passionated for full stack and based in Sweden. Keen on breaking into the job market to continue my professional growth. Eager to learn new things and contribute to innovative projects, I aspire to bring my skills and enthusiasm to a dynamic work environment.
+
+
+I'm deeply inspired by the endless possibilities in tech world. Let's connect and explore potential opportunities together!
+
+I will learn what it takes to get the job done !!
 
 
 
